@@ -1,1 +1,1 @@
-Hey. Welsome to my portfolio.
+Hey. Welcome to my portfolio.
